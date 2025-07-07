@@ -1,0 +1,5 @@
+- [Concise Rules of APA Style (Sixth Edition)](https://lit2talks.com/concise-rules-of-apa-style-sixth-edition-book-2323)
+- [Personality Tests and Assessments](https://lit2talks.com/personality-tests-and-assessments-2326)
+- [The Psychology Workbook for Writers](https://lit2talks.com/the-psychology-workbook-for-writers-book-2347)
+- [Practicals for Psychology: A Student Workbook](https://lit2talks.com/practicals-for-psychology-a-student-workbook-2348)
+- [Self-Esteem Games for Children](https://lit2talks.com/self-esteem-games-for-children-by-deborah-m-plummer-pdf-2369)
